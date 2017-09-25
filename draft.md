@@ -1,14 +1,16 @@
-# Your Draft
+Burns Bog 
+-Even in a nature reserve, you can still hear the egos of people from the honks of their overpriced cars
 
-This is your draft. You will replace this placeholder text with your own text.
+-Do the animals know that the commotion is from humans? Do they blame someone?
 
-Here is a new paragraph. It has a blank line before it. Generally, the only formatting you will need to know about is how to create new paragraphs, headers, and links. Here's a handy [guide on those topics](https://help.github.com/articles/basic-writing-and-formatting-syntax/). You may wish to bookmark it.
+-The mossy ground bounces like a trampoline/like a sponge
 
-To edit this text, click the pencil icon above and to the right.
+- Moss growing in a carboard cut out sign 
 
-Happy writing!
+-Sitka spruce, play my instrument 
 
+-The black spruce trees look like tree people
 
-Notes from Burns Bog
+*being at the back of the group isn't so bad.. you get more solitude
 
-I'm making some notes...
+-A douglas fir NEEDS a forest fire in order to survive 
