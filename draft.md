@@ -1,14 +1,7 @@
-# Your Draft
+Burns Bog: 
+-It's interesting how quikcly you can forget somewhere that you were only weeks ago 
+-Humans just HAVE to be a part of every part of life hey?
+-Even in a nature reserve, you can still hear the egos of people from the honks of their overpriced cars
+-Do the animals the commotion is from us/humans... do they blame someone?
 
-This is your draft. You will replace this placeholder text with your own text.
-
-Here is a new paragraph. It has a blank line before it. Generally, the only formatting you will need to know about is how to create new paragraphs, headers, and links. Here's a handy [guide on those topics](https://help.github.com/articles/basic-writing-and-formatting-syntax/). You may wish to bookmark it.
-
-To edit this text, click the pencil icon above and to the right.
-
-Happy writing!
-
-
-Notes from Burns Bog
-
-I'm making some notes...
+-Just close you eyes for a moment and feel the blanket of the sun 
