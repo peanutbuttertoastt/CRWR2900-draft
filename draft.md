@@ -18,3 +18,10 @@ If a Douglas fir doesn't catch fire, it doesn't germinate
 Spotlights have been shining on the biggest, tallest trees, (highlighting them). Now as I sit on this beat down tree, I am in the spotlight, but I am not the biggest or tallest, and not the most worthy to be highlighted
 
 *The sun fades away from me, like the plug of a lamp being ripped from a power source. I feel cold
+Now a tree creaks like an ungreased door hinge opening slowly. The more I listen, the less it sounds likea tree. Is it a bird? More than one? Talking to eachother about why there are so many people around their home all of a sudden?
+
+*I wish I could adventure the forest on my own without the fear of another human being. (not even scared of the wildlife. People are unpredictable and scary) 
+
+With my brightly colour everything in my clothing, I sit here and wish that I blended in with nature more...
+
+
