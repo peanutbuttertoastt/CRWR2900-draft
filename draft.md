@@ -41,3 +41,10 @@ I want to visit the little island over there that hasn't been touched. But if I 
 The mud here shatters here like crackled nailpolish. A common trend when I was in highschool. It feels like I should be falling through the cracks, but everything holds onto me. Like I'm tucked safely in the pouch of my mother's warmth. I am safe here. 
 
 
+
+
+EXPERIENCES IN COLLECTIVE THOUGHTS: 
+
+As I walk through these patches of nature within the city, I notice how you can never really escape the noisiness and disruption of people. I notice my want to be by myself comes out even more in these situations. My want to be able to freely wander these small pockets of forest all alone. In silence. The more that I do this, the more I find that this is not possible. If I want to be in silence, I have to either drive hours away and hike to a remote spot in the forest, or I have to pretend and wear noise-cancelling earplugs in hopes of hearing nothing. 
+
+I sit on a log, watching the two or three insects that feel brave enough to venture pass me (that, or they just don't notice me.) My eyes wander like binoculars looking for the moon in the daylight, and finally are able to focus. I stare at the rusty moss beneath my feet, and feel the sponge-like surface under me. I feel unstable, but know I will not fall. 
