@@ -28,4 +28,14 @@ Our bodies are so fragile to the elements from our home - Earth. If I were to wa
 Even though I am right beside the city, and can hear it clearly... looking out, I want to climb the tallest tree we pass by, just to see the city again. 
 
 
+Mud Bay 
+
+We are too close to the highway to feel like we are in "nature" 
+The way the Earth works is so beautiful. Everything falls into the perfect puzzle. Each line matching up perfectly. And even when it seems like you are missing a piece, you look on the ground, and it is right there waiting.
+
+Sitting in silence is one of my favourite things. I can have conversations with myself in my head if I am feeling talkitive, but have no one with me. 
+Each of the rocks I pick up has a new texture, has a new smell, a new shape. All unique, but placed perfectly. 
+
+I want to visit the little island over there that hasn't been touched. But if I do, it will have been touched by humans just like everything else. 
+
 
