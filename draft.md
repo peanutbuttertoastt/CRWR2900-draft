@@ -38,4 +38,6 @@ Each of the rocks I pick up has a new texture, has a new smell, a new shape. All
 
 I want to visit the little island over there that hasn't been touched. But if I do, it will have been touched by humans just like everything else. 
 
+The mud here shatters here like crackled nailpolish. A common trend when I was in highschool. It feels like I should be falling through the cracks, but everything holds onto me. Like I'm tucked safely in the pouch of my mother's warmth. I am safe here. 
+
 
