@@ -5,7 +5,7 @@ Burns Bog
 -Do the animals know that the commotion is from humans? Do they blame someone?
 
 -The mossy ground bounces like a trampoline/like a sponge
--The black spruce trees look like tree people
+-The black spruce trees look like tree people, waving to me
 
 -Sitka spruce, play my instrument (like this as personification) 
 
@@ -23,5 +23,9 @@ Now a tree creaks like an ungreased door hinge opening slowly. The more I listen
 *I wish I could adventure the forest on my own without the fear of another human being. (not even scared of the wildlife. People are unpredictable and scary) 
 
 With my brightly colour everything in my clothing, I sit here and wish that I blended in with nature more...
+Our bodies are so fragile to the elements from our home - Earth. If I were to walk barefoot now, that's all I'd be focusing on. 
+
+Even though I am right beside the city, and can hear it clearly... looking out, I want to climb the tallest tree we pass by, just to see the city again. 
+
 
 
