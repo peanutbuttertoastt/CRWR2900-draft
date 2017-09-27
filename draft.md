@@ -1,5 +1,5 @@
 
-Burns Bog 
+Burns Bog:
 
 -Even in a nature reserve, you can still hear the egos of people from the honks of their overpriced cars
 -Do the animals know that the commotion is from humans? Do they blame someone?
@@ -28,7 +28,7 @@ Our bodies are so fragile to the elements from our home - Earth. If I were to wa
 Even though I am right beside the city, and can hear it clearly... looking out, I want to climb the tallest tree we pass by, just to see the city again. 
 
 
-Mud Bay 
+Mud Bay:
 
 We are too close to the highway to feel like we are in "nature" 
 The way the Earth works is so beautiful. Everything falls into the perfect puzzle. Each line matching up perfectly. And even when it seems like you are missing a piece, you look on the ground, and it is right there waiting.
@@ -41,12 +41,35 @@ I want to visit the little island over there that hasn't been touched. But if I 
 The mud here shatters here like crackled nailpolish. A common trend when I was in highschool. It feels like I should be falling through the cracks, but everything holds onto me. Like I'm tucked safely in the pouch of my mother's warmth. I am safe here. 
 
 
+Kwomais Point Park: 
+
+Add to narrative: "We watched the constallations trickle across the sky, through the mesh in our tent."
+
+-baby's skin that has never seen the sun
+
+-tyre - self sacrifice (tyre'sday, tuesday) 
+
+-moving from doing to just BEING
+-Labrynth walking: The moments of silence in your head are SO nice. You can be with yourself, without the anxiety of your thoughts taking over. You become it isn't about getting to the middle, but simply the journey of your walk. The slower you go, the better. 
+
 
 
 EXPERIENCES IN COLLECTIVE THOUGHTS: 
 
-As I walk through these patches of nature within the city, I notice how you can never really escape the noisiness and disruption of people. I notice my want to be by myself comes out even more in these situations. My want to be able to freely wander these small pockets of forest all alone. In silence. The more that I do this, the more I find that this is not possible. If I want to be in silence, I have to either drive hours away and hike to a remote spot in the forest, or I have to pretend and wear noise-cancelling earplugs in hopes of hearing nothing. 
+As I walk through these patches of nature within the city, I notice how you can never really escape the noisiness and disruption of people. I notice the want to be by myself comes out even more in these situations. The want to be able to freely wander these small pockets of forest all alone - in silence. The more that I do this, the more I find that this is not possible. If I want to be in silence, I have to either drive hours away and hike to a remote spot in the forest, or I have to pretend and wear noise-cancelling earplugs in hopes of hearing nothing. 
 
 I sit on a log, watching the two or three insects that feel brave enough to venture pass me (that, or they just don't notice me.) My eyes wander like binoculars looking for the moon in the daylight, and finally are able to focus. I stare at the rusty moss beneath my feet, and feel the sponge-like surface under me. I feel unstable, but know I will not fall. I examine my clothing, patterns, texture, colour, and realize I don't blend in here. I stick out, just like that care person's starbucks cup left on the side of a beautiful beach. I have an endless feeling of want to belong here. I wish I could live here, but I have become too dependent on the "city life." 
 
-The only time I have really felt a part of nature was at the third lake at Joffre Lakes. A group of us backpacked up, expecting to stay the night. It was so quiet, with only a handfull of people there. The waterfall in the distance sounded like a huge fan (like the ones they use for photoshoots for the models), and was so comforting. It rushed over us all night, and swept into our dreams, and created showers. We could see all of the stars for once. Little to no light pollution. It scared me to be able to see so much of another world. The next morning, I felt genuine sadness to be leaving. I wanted to stay for weeks, it just felt right. No electricity, no distractions. No sadness. I just felt content in where I was, and who I was. 
+The only time I have really felt a part of nature was at the third lake at Joffre Lakes. A group of us backpacked up, expecting to stay the night. It was so quiet, with only a handfull of people there. The waterfall in the distance sounded like a huge fan (like the ones they use for photoshoots for the models), and was so comforting. It rushed over us all night, and swept into our dreams, and created showers. We could see all of the stars for once. Little to no light pollution. It scared me to be able to see so much of another world. We watched the constallations trickle across the sky. 
+
+The next morning, I felt sulked at the fact that we had to leave. We asked half of our group if it would be okay if we split into two groups so we could scramble up the mountain we slept beside. I wanted to stay for weeks, it just felt right. No electricity, no distractions. No sadness. I just felt content in where I was, and who I was. I felt no need to be anywhere, and no need to tell anyone where I was, or where I was going. 
+
+The lake swam beside us while we slept, and while we woke. I could hear it's limbs climbing up the rocks on the shore. It reached out to me, and grabbed my hand, in hopes of swinging me in. My mind wandered away from the idea of swimming in glacier water at nine o'clock in the morning. It spoke to me, and told me it would cast a blanket of warmth over my body. 
+"The cold won't touch you," it whispered to me. 
+
+I swallowed its words, and tapped the top of my toes into the treading water. It cooled me, and created bumps on each of my arms. I screamed, but I liked it. It felt new. It felt natural for once. 
+
+My socks slipped into the water, and I watched them float away into the ripples. 
+
+
+*the goal is to create a story from this. A (sort of) non-fiction piece about an experience I had up at the top of Joffre Lakes. I want to bring in elements from each of our outings - whether it be a clever thought or a cool image. 
