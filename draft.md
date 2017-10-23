@@ -52,6 +52,9 @@ Add to narrative: "We watched the constallations trickle across the sky, through
 -moving from doing to just BEING
 -Labrynth walking: The moments of silence in your head are SO nice. You can be with yourself, without the anxiety of your thoughts taking over. You become it isn't about getting to the middle, but simply the journey of your walk. The slower you go, the better. 
 
+WATERSHED:
+
+- It's so easy to get lost in a forest even as small as the ones around us. I take a few too many rights or lefts and all of a sudden I am completely on the other side of the forest and not able to find my group. 
 
 
 EXPERIENCES IN COLLECTIVE THOUGHTS: 
@@ -62,10 +65,10 @@ I sit on a log, watching the two or three insects that feel brave enough to vent
 
 The only time I have really felt a part of nature was at the third lake at Joffre Lakes. A group of us backpacked up, expecting to stay the night. It was so quiet, with only a handfull of people there. The waterfall in the distance sounded like a huge fan (like the ones they use for photo-shoots for the models), and was so comforting. It rushed over us all night, and swept into our dreams, and created showers. We could see all of the stars for once. Little to no light pollution. It scared me to be able to see so much of another world. We watched the constillations trickle across the sky. 
 
-The next morning, I sulked at the fact that we had to leave. My skin wanted to stick to this new place like the stickers on my childhood bedroom door, never to be removed. We asked our group if it would be okay if we split into two groups so we could scramble up the mountain we slept beside. I wanted to stay for weeks, beside that beautiful mousse-textured waterfall. No electricity, no distractions. No sadness. I just felt content in where I was, and who I was. I felt no need to be anywhere, and no need to tell anyone where I was, or where I was going. We scattered and crawled up the rocky surface toward the top like mountain lions. Each of our paws clutching onto each rock in front our eyes. We warned eachother not to climb directly behind on another because of the miniature avalanches us as humans were causing. When we reached the top, my hat dripped once as I looked toward the sun. The third lake greeted us with a corner of bright aquamarine blue. It really was marvelous. 
+The next morning, I sulked at the fact that we had to leave. My skin wanted to stick to this new place like the stickers on my childhood bedroom door, never to be removed. We asked our group if it would be okay if we split into two groups so we could scramble up the mountain we slept beside the night before. I wanted to stay for weeks, beside that beautiful mousse-textured waterfall. No electricity, no distractions. No sadness. I just felt content in where I was, and who I was. I felt no need to be anywhere, and no need to tell anyone where I was, or where I was going. We scattered and crawled up the rocky surface toward the top like mountain lions. Each of our paws clutching onto each rock in front our eyes. We warned eachother not to climb directly behind on another because of the miniature avalanches us as humans were causing. When we reached the top, my hat dripped once as I looked toward the sun. The third lake greeted us with a corner of bright aquamarine blue. It really was marvelous. 
 
 The lake swam beside us while we slept, and while we woke. I could hear it's limbs climbing up the rocks on the shore. It reached out to me, and grabbed my hand, in hopes of swinging me in. My mind wandered away from the idea of swimming in glacier water at nine o'clock in the morning. It spoke to me, and told me it would cast a blanket of warmth over my body. 
-"The cold won't touch you," it whispered to me. 
+"The cold won't touch you," it whispered. 
 
 I swallowed its words, and tapped the top of my toes into the treading water. It cooled me, and created bumps on each of my arms. I screamed, but I liked it. It felt new. It felt natural for once. 
 
