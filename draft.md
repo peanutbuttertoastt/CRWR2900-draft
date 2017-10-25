@@ -77,4 +77,6 @@ My socks slipped into the water, and I watched them float away into the ripples.
 I noticed there weren't many animals around us. They were all hiding away from even the few people around their homes. I then thought, maybe they were surrounding us, but underneath all of the rocks. Little creatures swirling around us underground. Such a cool thought. A rat-sized squirrel peeped out of a hole in a bunch of rocks. Not a squirrel, but something very similar. Almost like a hamster I had when I was nearly five years old. So cute. So wild.
 
 
-*the goal is to create a story from this. A (sort of) non-fiction piece about an experience I had up at the top of Joffre Lakes. I want to bring in elements from each of our outings - whether it be a clever thought or a cool image. 
+The goal is to write a piece about an experience I had up at the top of Joffre Lakes. I am leaning more toward poetry at this point in time now, but I want to include and exerpt of narrative either at the beginning or the end. 
+
+*ALSO I am not able to view my issues or create an issue for some reason.. 
