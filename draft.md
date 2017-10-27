@@ -77,3 +77,29 @@ fresh air
 oxygen to lungs
 suffocation 
 pillows murmered words
+
+Poem Untitled (for now)
+
+step outside
+roll your neck around
+cracks in spine
+exhale 
+a deep ah let out
+cold lips 
+chapped surface 
+close eyelids over eyes 
+white space 
+create a story 
+
+a stick-man figure walks
+he wears no clothes 
+but he wears a hat 
+policeman 
+he is happy
+sits at a desk
+no one else there
+picks up the cup 
+hums himself a song 
+mmmm mmmm mmmm mmmm 
+
+
