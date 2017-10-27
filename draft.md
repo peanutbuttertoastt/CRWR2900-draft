@@ -80,3 +80,48 @@ I noticed there weren't many animals around us. They were all hiding away from e
 The goal is to write a piece about an experience I had up at the top of Joffre Lakes. I am leaning more toward poetry at this point in time now, but I want to include and exerpt of narrative either at the beginning or the end. 
 
 *ALSO I am not able to view my issues or create an issue for some reason.. 
+
+
+Poetry beginning:
+
+I am not a maple 
+I am not 
+a maple
+falls slowly 
+like a helicopter leaf 
+drifting, swaying 
+
+I am not sweet 
+I am not 
+sweet syrup 
+ooses out of bark
+lick
+the stickyness on your lips 
+
+I am not permanent 
+I am not 
+black ink 
+spills soaking 
+white tshirts
+staining  
+
+I am not plastic 
+I am not 
+toss behind you
+wrinkled paper 
+crinkled mess 
+mazes in heads 
+
+I am not a clue 
+I am not 
+Etcha-sketch 
+make your own art 
+scribble 
+out mistakes 
+
+I am not soap
+I am not 
+fresh air 
+oxygen to lungs
+suffocation 
+pillows murmered words
