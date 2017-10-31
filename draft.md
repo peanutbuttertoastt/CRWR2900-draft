@@ -20,8 +20,6 @@ The next morning, I sulked at the fact that we had to leave. My skin wanted to s
 My socks slipped into the water, and I watched them float away into the ripples. 
 
 
-The goal is to write a piece about an experience I had up at the top of Joffre Lakes. I am leaning more toward poetry at this point in time now, but I want to include and exerpt of narrative either at the beginning or the end. 
-
 *ALSO I am not able to view my issues or create an issue for some reason.. 
 
 
@@ -118,11 +116,14 @@ I paused for a moment to allow some of my thoughts to circle and make sense. Aft
 
 I smiled nervously but felt a sensation of happiness within me. My doubt faded as my mind emptied. To notice nothing but my breath was refreshing. I stood with the bottom half of my legs submerged in the water and just breathed, noticing each breath more, each exhale more.
 
+All of a sudden I noticed there weren't many animals around. They were all hiding away from even the few people around their homes. I then thought, maybe they were surrounding us, but underneath all of the rocks. Thinking about all the little creatures swirling around us underground was such a cool thought. I touched the front of my tongue to my two top front teeth and made a sticky sound. The call I'd use for my cats back at home. I moved my head around to see if I could hear any movements in the dark and suddenly, I whipped toward my right ear. I made the sticky sound again. There was one small movement in the bush beside me so I kneeled down slowly and reached my hands out on the ground in front of me. My eyes widened to compensate for the moon being my only light source. I breathed out loudly instead of letting out a gasp. There it was, a little creature the size of a hamster, no tail, plump. It hid partially behind the bush, but I used the sticky noise once more to call it over into the palm of my hands. 
 
-I noticed there weren't many animals around. They were all hiding away from even the few people around their homes. I then thought, maybe they were surrounding us, but underneath all of the rocks –little creatures swirling around us underground. Such a cool thought.
+"Hey little guy," I said while slowly standing up. "It's alright, I've got you." I hushed. 
 
+With the hamster-like creature in my hands, I walked along the shore. I found a comfortable rock to sit on and rested there while I pet the top of the creature's head. It was calm, but I sensed his fear so I gently put him back down on the gravel. He scurried away quietly, and returned to his secret home underneath the ground. 
 
-gets hurt… can’t get back for help…says the water can help me,…you’re crazy everyone says…no trust me…water helps…end…
+finds a hurt animals of some kind...brings it to the water... please help water....helps... returns to tent...wakes up cristian accidentally..asks where she has been....just looking at the lake she says...watch the constallations trickle across the sky 
+
 
 The blue of the lake took over the sky 
 My hands turned purple 
@@ -132,4 +133,11 @@ wiggled my fingers
 tried to shake away tingling sensations
 but they started to stiffen
 and the bones inside begin to lock
-your 
+unable to move
+the natural rhythm of my body 
+a board 
+that drifts across the water 
+under the stars
+stiff 
+silent 
+
