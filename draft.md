@@ -51,14 +51,14 @@ I am not
 toss behind you
 wrinkled paper 
 crinkled mess 
-mazes in heads 
+mazes inside of heads 
 
 I am not a clue 
 I am not 
 Etcha-sketch 
 make your own art 
-scribble 
-out mistakes 
+shake off 
+your mistakes 
 
 I am not soap
 I am not 
@@ -67,29 +67,6 @@ oxygen to lungs
 suffocation 
 pillows murmered words
 
-Poem Untitled (for now)
-
-step outside
-roll your neck around
-cracks in spine
-exhale 
-a deep ah let out
-cold lips 
-chapped surface 
-close eyelids over eyes 
-white space 
-create a story 
-
-a stick-man figure walks
-he wears no clothes 
-but he wears a hat 
-policeman 
-he is happy
-sits at a desk
-no one else there
-picks up the cup 
-hums himself a song 
-mmmm mmmm mmmm mmmm 
 
 
   The lake swam beside us while we slept. As I drifted in and out of consciousness, I could hear it's limbs climbing up the rocks on the shore. I laid on my back for a moment trying to convince myself to go back to sleep as I observed the inside of the tent, but my curiosity kept me awake. I unzipped my sleeping bag slowly to avoid waking up Cristian beside me. I hopped over his still body and carefully crawled out of our tent. While I walked closer to the glacier water, I paused to breathe deeply and looked up at the stars. My toes were cold in the breeze with just a pair of socks and flip-flops to shield my feet. It was silent for a moment until I heard a playful splash come from the lake, which drew my attention away from the Christmas lights in the sky. I walked further down in hopes of seeing someone else from my hiking group sitting by the water. My tender cheeks reached my ears, and I let out a breathy laugh as I tiptoed down the incline. It was hard to see where my feet were landing and I could feel the uneven rocks beneath me. Each one became more and more wobbly as I went on. 
@@ -118,9 +95,9 @@ All of a sudden I noticed there weren't many animals around. They were all hidin
 
 "Hey little guy," I said while slowly standing up. "It's alright, I've got you." I hushed. 
 
-  With the hamster-like creature in my hands, I walked along the shore. I found a comfortable rock to sit on and rested there while I pet the top of the creature's head. It was calm, but I sensed it's fear from the stiffness of it's body so I gently put him back down on the gravel. He scurried away quietly, and returned to his secret home underneath the ground. I became completely alone and my thoughts started to become more present. I sat watching the two or three insects that felt brave enough to venture pass me, or just didn't notice my presence. My eyes wandered like binoculars looking for the moon in the daylight, and finally were able to focus on the turqoise waves. With the silence seeping in, I began to examine my clothing patterns, texture, color, and started to realize that I didn't blend in with everything around me. Even though I had such a strong want to stay there forever, I knew I couldn't survive. I had become too dependent on "city life" and the conveniences attached to that idea. I wanted to stay for weeks beside beautiful mousse-textured waterfall on the mountain beside our tents. No electricity, no distractions. No anxiety. I just felt content in where I was, and who I was. I felt no need to be anywhere, and no need to tell anyone where I was, or where I was going. 
+  With the hamster-like creature in my hands, I walked along the shore. I found a comfortable rock to sit on and rested there while I pet the top of the creature's head. It was calm, but I sensed it's fear from the stiffness of it's body so I gently put him back down on the gravel. He scurried away quietly, and returned to his secret home underneath the ground. I became completely alone and my thoughts started to become more present. I sat watching the two or three insects that felt brave enough to venture pass me, or just didn't notice my presence. My eyes wandered like binoculars looking for the moon in the daylight, and finally were able to focus on the turqoise waves. With the silence seeping in, I began to examine my clothing patterns, texture, color, and started to realize that I didn't blend in with everything around me. I stood out like the coloured piece in a black and white photograph. Even though I had such a strong want to stay there forever, I knew I could never survive. I had become too dependent on "city life" and the conveniences attached to that idea. I wanted to stay for weeks beside beautiful mousse-textured waterfall on the mountain beside our tents. No electricity, no distractions. No anxiety. I just felt content in where I was, and who I was. I felt no need to be anywhere, and no need to tell anyone where I was, or where I was going. 
   
-  I returned to my breath, and put my hand against my chest to feel it expand. I exhaled for as long as possible to rid of anything unwanted. I returned to my socks and flip-flops and reunited them with my frozen feet. I decided to go toward the little creek at the bottom of the waterfall to see if there was any clean water. My deep breaths had taken all of the moisture out of my mouth, and my lips started to crack. 
+  I returned to my breath, and put my hand against my chest to feel it expand, which paralyzed me for a moment. I exhaled for as long as possible in order to get rid of anything unwanted inside of me. I returned to my socks and flip-flops and reunited them with my frozen feet. I collected myself and decided to go toward the little creek at the bottom of the waterfall to see if there was any clean water. My deep breaths had taken all of the moisture out of my mouth, and my lips started to crack. The flick of my flip-flops on my heels was quiet enough to allow everyone else in my group to stay asleep peacefully. 
 
 finds a hurt animals of some kind...brings it to the water... please help water....helps... returns to tent...wakes up cristian accidentally..asks where she has been....just looking at the lake she says...watch the constallations trickle across the sky 
 
@@ -140,4 +117,49 @@ that drifts across the water
 under the stars
 stiff 
 silent 
+forgotten 
+
+
+You are
+
+You’re the water rushing past 
+On the pavement
+All trickling so fast 
+
+I’m the leaves that block the drain
+To keep you from drowning 
+Again and again 
+
+I'll stand out in the rain for you
+
+You’re the footsteps up the stairs 
+While I watch for you 
+Through the shattered glass
+
+I’m the lamp that lights the hallway
+That helps guide you to my bedroom 
+Late at night
+
+Black licorice down my face
+But still
+I’ll try my best to be 
+The shelter that you need
+Need 
+
+You’re the fresh air through a storm 
+While evergreens come knocking
+At my door 
+
+I’m the sunshine that pulls through
+All the clouds that block 
+The warmth I give to you 
+
+I’ll stand out in the rain 
+For you
+Black licorice runs down 
+My face 
+Socks soaking into clay
+I stand
+I’ll try my best to be
+The rooted tree you need 
 
